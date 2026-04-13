@@ -1,11 +1,11 @@
-#  The Next Chapter 
+# The Next Chapter
 
 ## You're Invited to Celebrate Derrick Montgomery's Graduation!
 
 **Master of Social Work (MSW)**
+**Texas A&M University - Texarkana**
 
 Saturday, May 9, 2026 at 7:00 PM
-
 Texarkana, Texas Convention Center | Texarkana, Texas
 
 ---
@@ -35,5 +35,4 @@ We've put together a list of local hotels for out-of-town guests. No matter whic
     ---
 
     With love and excitement,
-
     **Kathryn & Family**
