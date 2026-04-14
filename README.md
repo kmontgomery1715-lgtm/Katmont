@@ -5,8 +5,8 @@
 **Master of Social Work (MSW)**
 **Texas A&M University - Texarkana**
 
-Saturday, May 9, 2026 at 7:00 PM
-Texarkana, Texas Convention Center | Texarkana, Texas
+When: Saturday, May 9, 2026 at 7:00 PM
+Where: Texarkana, Texas Convention Center | Texarkana, Texas
 
 ---
 
