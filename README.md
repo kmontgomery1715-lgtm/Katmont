@@ -10,13 +10,13 @@ Where: Texarkana, Texas Convention Center | Texarkana, Texas
 
 ---
 
-Join us as we celebrate Derrick's incredible achievement -- earning his Master of Social Work degree from Texas A&M University - Texarkana! This is the beginning of a powerful new chapter, and we'd love to have you there to share in the joy.
+Join us as we celebrate Derrick's incredible achievement -- earning his Master of Social Work degree from Texas A&M University - Texarkana! This is the beginning of a powerful new chapter for Derrick, and we'd love to have you there to share in the celebration.
 
 ---
 
 ### Hotel Options
 
-We've put together a list of local hotels for out-of-town guests. No matter which one you choose, each is conveniently close to:
+I've put together a list of local hotels for out-of-town guests. No matter which one you choose, each is conveniently close to:
 
 - **Texas A&M University - Texarkana** (Commencement Ceremony -- May 8)
 - - **Texarkana, Texas Convention Center** (Graduation Party -- May 9)
